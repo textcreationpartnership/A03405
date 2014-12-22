@@ -37,11 +37,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-HISTRIO-MASTIX.
-Or,
-THE PLAYER
-whipt.Printed for TH: THORP.
-1610.
+
 #####Body#####
 
 1. HISTRIO-MASTIX.
